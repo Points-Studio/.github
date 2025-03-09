@@ -9,7 +9,7 @@ We develop websites, apps, and much more
 * 🚀  I'm currently working on VoicePoint
 * 🤝  I'm open to collaborating on Interesting projects
 
-### Skills
+### Our team's skills
 
 
 <p align="left">
